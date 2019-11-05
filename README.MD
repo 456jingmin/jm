@@ -68,15 +68,15 @@ To be published.
 
 ---------------------------------------------------------------------
 
->	**Fu-Hao Lu**
+>	**MIN JING**
 
->	Post-Doctoral Scientist in Micheal Bevan laboratory
+>	Made in China
 
->	Cell and Developmental Department, John Innes Centre
+>	HeNan university ,biology master dergee
 
 >	Norwich NR4 7UH, United Kingdom
 
->	E-mail: <Fu-Hao.Lu@jic.ac.uk>
+>	E-mail: <1843057990@qq.com>
 
 ---------------------------------------------------------------------
 
