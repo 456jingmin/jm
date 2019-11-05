@@ -74,7 +74,7 @@ To be published.
 
 >	HeNan university ,biology master dergee
 
->	Norwich NR4 7UH, United Kingdom
+>	
 
 >	E-mail: <1843057990@qq.com>
 
